@@ -4,7 +4,7 @@ www.indolook.com
 
 -------
 
-Welcome to 'Indonesia where' (www.indowhere.com), Providing valuable location information about Indonesia.
+Welcome to 'Indonesia where', Providing valuable location information about Indonesia.
 🚀Indonesia Where - Value Proposition🧭
 www.indowhere.com
 
