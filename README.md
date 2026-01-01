@@ -1,7 +1,7 @@
 欢迎来到「印尼位置」，帮你找到好地方！
 
 🚀印尼位置 - 定位价值🧭
-www.indolook.com
+www.indowhere.com
 
 -------
 
